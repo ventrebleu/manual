@@ -46,7 +46,7 @@ More info: https://medium.com/ccoutzoukis/my-5-work-principles-1a9aa9d6d08d
 - I think in-person meetings are very important, especially when kicking off a new project or when you never met someone.
 
 ## Times/hours I like to work
-- Maker’s time in the morning, meetings in the afternoons.
+- Maker’s time in the morning, meetings in the afternoon.
 - Interestingly, my most creative time is during my workout in the morning. I call it my Deep Workout®.
 
 ## Things I love
