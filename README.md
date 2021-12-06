@@ -22,7 +22,7 @@
 - Don’t stare at a screen and you’ll be more creative
 - Spend more time learning the basics
 - Follow the rule of least power
-- Beware of trends 
+- Beware of trends  
 More info: https://medium.com/ccoutzoukis/my-5-work-principles-1a9aa9d6d08d
 
 
