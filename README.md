@@ -43,7 +43,7 @@ More info: https://medium.com/ccoutzoukis/my-5-work-principles-1a9aa9d6d08d
 
 ## Conditions I like to work in
 - Ideally, I would want to work in an office with no more than 4 people. I like some company but open space offices freak me out.
-- I think in-person meetings are very important, especially when kicking off a new project or when you never met someone.
+- I think in-person meetings are very important, especially when kicking off a new project or when you've never met that person before.
 
 ## Times/hours I like to work
 - Maker’s time in the morning, meetings in the afternoon.
@@ -57,4 +57,4 @@ More info: https://medium.com/ccoutzoukis/my-5-work-principles-1a9aa9d6d08d
 ## Other things to know about me
 - Father of three wonderful daughters: Maya, June, and Zoé
 - I’m a multi-instrumentalist but have mostly played electric guitar in bands since I was 16
-- I’m from Paris, France originally but also half Greek – hence my last name – although I’m a third-generation immigrant and can barely talk.
+- I’m from Paris, France originally but also half Greek – hence my last name – although I’m a third-generation immigrant and can barely speak any Greek.
